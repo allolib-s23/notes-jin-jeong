@@ -1,3 +1,3 @@
-#Notes from Jin Jeong
+# Notes from Jin Jeong
 
 Placeholder text
